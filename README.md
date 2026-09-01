@@ -1,3 +1,3 @@
 # Network-Infrastructure-and-Protocol-Certification
-[CCNAITNUpdated20260901-20-9vns4l.pdf](https://github.com/user-attachments/files/31680728/CCNAITNUpdated20260901-20-9vns4l.pdf)
-[CCNA-_Introduction_to_Networks_certificate_varshini181007-gmail-com_43831d75-db5e-478a-97d9-255390e030b2.pdf](https://github.com/user-attachments/files/31680732/CCNA-_Introduction_to_Networks_certificate_varshini181007-gmail-com_43831d75-db5e-478a-97d9-255390e030b2.pdf)
+<img width="927" height="717" alt="image" src="https://github.com/user-attachments/assets/26263eef-36e9-4d56-8b42-2973dd19f03b" />
+<img width="1007" height="680" alt="image" src="https://github.com/user-attachments/assets/f303c7b1-1f86-45a6-8cd8-33113494e8dc" />
